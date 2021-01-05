@@ -1,4 +1,4 @@
-### hey people,how yu doin??
+### a lion doesnt turn around when small dogs bark
 
 
 Here are some ideas to get you started:
