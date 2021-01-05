@@ -1,3 +1,3 @@
-### a lion doesnt turn around when small dogs bark,😎🙌
-
+### a lion doesnt turn around when small dogs bark,😎
+ohh like that
 
